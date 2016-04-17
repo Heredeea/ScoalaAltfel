@@ -1,0 +1,5 @@
+
+Video cu func?ionarea:
+
+[![Video](https://i.ytimg.com/vi/fnwm3nxY70U/default.jpg)](https://www.youtube.com/watch?v=fnwm3nxY70U&feature=youtu.be)
+
